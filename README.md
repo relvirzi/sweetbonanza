@@ -1,5 +1,5 @@
 
-[7Slots'a Kayıt Olmak ve Hoşgeldiniz Promosyonuyla Sweet Bonanza Oynamak İçin Tıklayın](https://cutt.ly/EeEXltiX)
+# [7Slots'a Kayıt Olmak ve Hoşgeldiniz Promosyonuyla Sweet Bonanza Oynamak İçin Tıklayın](https://cutt.ly/EeEXltiX)
 <br>
 <br>
 <br>
